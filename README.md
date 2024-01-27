@@ -1,4 +1,4 @@
-### Hi there 👋
+![Green Colorful Cute Aesthetic Group Project Presentation](https://github.com/Naomi-Ram/Naomi-Ram/assets/112789741/955ecab5-ae2c-40af-b9a2-324527c0c07b)
 
 <!--
 **Naomi-Ram/Naomi-Ram** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
