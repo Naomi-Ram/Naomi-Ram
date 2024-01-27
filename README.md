@@ -1,7 +1,9 @@
 
 ![Diseño sin título](https://github.com/Naomi-Ram/Naomi-Ram/assets/112789741/1e7b4f8b-3b2d-4fcc-8c13-9f8466b52c0c)
 
-
+.
+.
+# ʕ•ᴥ•ʔっ✨ About me
 
 <!--
 **Naomi-Ram/Naomi-Ram** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
